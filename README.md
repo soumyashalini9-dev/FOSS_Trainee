@@ -3,7 +3,7 @@
 ## 👀 About Me:
 Hi everyone **SOUMYA** this side and my Hometown is **Bihar**.
 I am a **B.Tech First year student** at **IIIT-ALLAHABAD**.
-I am from **IT BRANCH** and in the mosted goated section **B**.   
+I am from **IT BRANCH** and in the most goated section **B**.   
 My Tech parent is **Tushar Saharan Sir**.
 AND AND ..... 
 (meanwhile people reading this- Abe bss kr bhai itna professional bhi nhi hona tha)
@@ -16,10 +16,10 @@ Mujhe academics ke alawa baki sab aata hai🥰.
 
 
 ### 😼 College ki Story:
-1. Abhi recently TT ka tournament ho rha tha and meri opponent Dr Rekha Verma Ma'am thi hamari fee ki prof.💀 and 2 matches hue and dono me haraya tha unhe and unhone mera naam Naina TT se save krlia and boli merko tt sikhana😭 
+1. Abhi recently TT ka tournament ho rha tha and meri opponent Dr Rekha Verma Ma'am thi hamari fee ki prof.💀 and 2 matches hue and dono me haraya tha unhe and unhone mera naam Naina TT se save krlia and boli merko TT sikhana😭 
 fir agle din classroom me ek bar eye contact hogya and pura lc merko pdhai vo.
 (paper me bdla na lele 🥲)
- 2. Ek din room pe phone bhul gyi thi sham ko 5bje and bahar thi dosto sath..fir jab vapis 10:30 aai toh kundu mam ne pakad lia aur bola "SOUMYAAAAAA tumhe pta h tumhare papa ne police complain krdi h tumhari missing ki "💀 and jab maine phone check kia toh uspe 53 missed calls the 🥀.
+ 2. Ek din mai room pe phone bhul gyi thi sham ko 5bje and bahar thi dosto sath..fir jab vapis 10:30 aai toh kundu mam ne pakad lia aur bola "SOUMYAAAAAA tumhe pta h tumhare papa ne police complain krdi h tumhari missing ki "💀 and jab maine phone check kia toh uspe 53 missed calls the 🥀.
  uss din ke baad se jaha bhi mai dikh jati hu unhe... daily meri update leti h and mess me bhi mere sath baith ke khati h 😭
 
 
